@@ -4,5 +4,5 @@ Buondì Hacker, come primo step dovrete cambiare il nome "So Lillo" nel vostro n
 
 Ciao, ho modificato dal server!!
 
-COCORITO COCCORITO è UN VECCHIO PAPPAGALLO!
-
+COCORITO COCCORITO è UN giovani PAPPAGALLO!
+ciao a tutti per due
